@@ -1,2 +1,2 @@
 # Discuss
-Talk to **anybody** about **anything**
+Discuss about **anything** with **everyone*
